@@ -11,7 +11,7 @@
 
 [Website](https://idzan.hr)   
 [Old and Demo Project Site](https://crodesign21.com)  
-[Facebook](https://facebook.com/crodesign21)  
+[Facebook](https://facebook.com/idzanmarko)  
 [Twitter/X](https://x.com/idzan_hr)  
 [LinkedIn](https://www.linkedin.com/in/idzanmarko/)  
 [Instagram](https://instagram.com/idzan.hr)  
